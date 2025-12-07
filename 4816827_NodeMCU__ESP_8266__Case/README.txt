@@ -1,1 +1,1 @@
-This thing was created by Thingiverse user Urbaier, and is licensed under cc.
+此作品由 Thingiverse 用户 Urbaier 创建，并在 cc 许可下发布。
